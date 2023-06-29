@@ -1,1 +1,1 @@
-This task took me three dyas to finish it 
+This task took me three days to finish it 
